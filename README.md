@@ -8,7 +8,7 @@ Akram Arafeh - 119200108
 
 ## Support
 
-For support, email ahmadabdin3@hotmail.com or malisho.ahmad@gmail.com or akram_arafeh@hotmail.com.
+For support, email ahmad.abdeen@bilgiedu.net or ahmad.malisho@bilgiedu.net or akram.arafeh@bilgiedu.net.
 
 
 ## License
